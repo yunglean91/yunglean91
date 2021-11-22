@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning virginity
 - 💞️ I’m looking to collaborate on virginity
 - 📫 How to reach me... you can't im virgin
-- 🥶 IT Technic
+- 🥶 IT Technician 1 year...
  
